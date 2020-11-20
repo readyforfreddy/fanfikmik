@@ -27,17 +27,22 @@ Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyc
 
 ...
 
-Podeszła bliżej, by mógł sięgnąć po koniuszek spowijającego ją ręcznika. Wystarczyło lekko pociągnąć, a opadł jak miękka, wilgotna kurtyna. Tuż obok zmiętej już nieco, czerwonej sukienki. I białych, oślepiająco białych spodni.
+Podeszła bliżej, by mógł sięgnąć po koniuszek spowijającego ją ręcznika. Wystarczyło lekko pociągnąć, a opadł jak miękka, wilgotna kurtyna. Tuż obok zmiętych na podłodze białych spodni i czerwonej sukienki.
 
 #### On: 
 
 (_ta część powinna być rozwlekła, wielokropki, piętrowe zdania, wątpliwości. bohater pełen lęków, ale jednocześnie jakoś przekonany o byciu Prawdziwym Mężczyzną_)
 
-Gdzieś za miastem, ciepłe popołudnie wczesnego lata. Mała dziewczynka, córka, zbiera polne kwiaty. On pochłonięty własnymi myślami. Lekka mgiełka w powietrzu zmiękcza kolory, przywodzi na myśl obrazy malowane przez żonę. Właściwie to ostatnio jej styl jakby ewoluował. Pastelowe, rozmyte sielsko krajobrazy ustąpiły niemal komiksowym, zamaszystym, jakby kreślonym od przykładnicy liniom w kolorach stali, juty, cegły, miedzi. W cieniach, rzucanych przez wysokie budynki często majaczy potężnie zbudowana postać. Bohater, przywódca.. może oficer? Wzdycha głęboko, właściwie zawsze chciał taki być. A może.. jest?\* żony trochę się boi, a trochę brzydzi. kilka nieśmiałych zbliżeń, inicjowanych raczej przez nią. Ciąża, Dziecko. 
+Bladobłękitne niebo przecinał powoli samolot. Z naziemnej, wręcz przyziemnej perspektywy zdawał się malutki jak muszka owocówka. Tak naprawdę był pewnie ogromny, metalowy szerszeń pożerający lekkomyślnych podróżnych. I jeszcze te zarazki w klimatyzacji. Już kilka razy wykręcał się z odwiedzin u starszej siostry na Wyspach Brytyjskich. Rodzina ciągle wyobraża sobie, że jest jakimś mięczakiem, ale mężczyzna musi przede wszystkim dbać o żonę i dziecko, nie może się narażać bez powodu. Musi być ostoją, opoką, oczywiście. 
 
-Po niebie przelatuje samolot. nie mógłby lecieć samolotem, są niebezpieczne, jak metalowe, latające trumny. Jak gigantyczne szerszenie, pożerające pasażerów. I jeszcze te zarazki w klimatyzacji. Już kilka razy wykręcał się z odwiedzin u starszej siostry na Wyspach. Rodzina wyobraża sobie, że jest jakimś mięczakiem, ale mężczyzna musi przecież dbać o żonę i dziecko, nie może się narażać bez powodu. Musi być ostoją, opoką. Najwyraźniej żona tak go widzi, jakoś się to odzwierciedla w tych nowych obrazach. 
+Najważniejsze, że własna żona w końcu dostrzegła w nim tę siłę. Nie musiała niczego mówić, dostrzegł to sam w jej najnowszych pracach. Jej styl ostatnio wyraźnie ewoluował. Pastelowe, rozmyte sielsko krajobrazy ustąpiły niemal komiksowym, zamaszystym, jakby kreślonym od przykładnicy liniom w kolorach stali, juty, cegły, miedzi. W cieniach, rzucanych przez wysokie budynki majaczyła potężnie zbudowana postać. Bohater, przywódca... może oficer? Westchnął głęboko, właściwie zawsze chciał być kimś takim. Jak... jak jego własny kuzyn. Zawsze żył trochę w cieniu tego introwertycznego osiłka, trochę się go bał, a trochę podziwiał. I chyba... jakoś nieświadomie próbował naśladować. Ostatnio widać jakoś bardziej mu się to udawało. 
 
-_myśli: Rudy pewnie ciągle uprawia seks z żoną. jak zwierzęta._
+_myśli: Rudy pewnie ciągle uprawia seks z żoną. jak zwierzęta. on sam żony trochę się boi, a trochę brzydzi. kilka nieśmiałych zbliżeń, inicjowanych raczej przez nią. Ciąża, Dziecko._
+
+
+~~Gdzieś za miastem, ciepłe popołudnie wczesnego lata. Mała dziewczynka, córka, zbiera polne kwiaty. On pochłonięty własnymi myślami. Lekka mgiełka w powietrzu zmiękcza kolory, przywodzi na myśl obrazy malowane przez żonę. Właściwie to ostatnio~~ 
+
+
 
 #### Ten trzeci:
 
