@@ -4,7 +4,7 @@
 
 (_ta część powinna być nieco rozmarzona, rozmyta, wielokropki, aluzje, kolory/światłocień_)
 
-Krople wody na jej nagich ramionach zalśniły rdzawo w promieniach popołudniowego słońca. Mokre włosy przylgneły do twarzy, zasłaniając jedno oko. W tym drugim zalśniła figlarna iskierka.
+Krople wody na jej nagich ramionach zalśniły rdzawo w promieniach popołudniowego słońca. Mokre włosy przylgneły do twarzy, zasłaniając jedno oko. W drugim zalśniła figlarna iskierka.
 
 \- A tak właściwie, to co Ci się we mnie najbardziej podobało?  
 
@@ -14,21 +14,20 @@ Przez chwilę miał minę, jakby usilnie próbował sobie przypomnieć.
 
 \- Twoja żona też ma zgrabne...
 
-\- Nie mówmy o tym, proszę.
+\- Nie mówmy o tym. Proszę.
 
-Małomówny, ale konkretny. Właśnie to ją do niego ciągnęło, chyba odkąd poznała go jeszcze w szkole. Kuzyn męża, właściwie niemal jego brat. Nieco młodszy, ale znacznie dojrzalszy, mężczyzna bardziej niż chłopiec. A mąż... chyba już na zawsze zostanie chłopcem. Synem swojej matki, przede wszystkim. Pewnie opowiadał teraz ich małej córeczce gdzieś daleko za miastem o jakimś zapomnianym dawno poecie. Albo co gorsza o własnym dziadku, samozwańczym autorytecie moralnym. 
+Małomówny, ale konkretny. Właśnie to ją do niego ciągnęło, chyba odkąd poznała go jeszcze w szkole. Kuzyn męża, właściwie niemal jego brat. Młodszy, a przecież znacznie dojrzalszy, mężczyzna bardziej niż chłopiec. A jej mąż... chyba już na zawsze zostanie chłopcem. Synem swojej matki, przede wszystkim. Pewnie opowiadał teraz ich małej córeczce o jakimś zapomnianym dawno poecie. Albo co gorsza o własnym dziadku, samozwańczym autorytecie moralnym. 
 
-Byle tylko się nie zgubili na tej podmiejskiej wycieczce, to by było podobne do tego fajtłapy. To niemal cud, że w ogóle mieli córkę, z tym jego bojaźliwym niezdecydowaniem. Na początku było to nawet urocze, ta jego nieśmiała delikatność, ciągła troska, czy aby nie robi czegoś niestosownego. 
+Byle tylko się nie zgubili na tej podmiejskiej wycieczce, to by było podobne do tego fajtłapy. To niemal cud, że w ogóle mieli córkę, z tym jego bojaźliwym niezdecydowaniem. Na początku było to nawet urocze, ta jego nieśmiała delikatność, ta ciągła troska, czy aby nie robi czegoś niestosownego. 
 
-Dopiero w silnych ramionach tego drugiego poczuła się kobietą. Z całej licznej rodziny męża tylko ten mrukliwy rudzielec zdawał się być normalny. Nie przynudzał godzinami o starożytnych mędrcach, nie rozpaczał nad upadkiem współczesnego świata, po prostu był. I zawsze od jednego spojrzenia rozumiał jej obrazy. Jakoś tak... potrafił w kilku prostych, niemal pozornie szorstkich słowach wyrazić dokładnie to, co chciała przekazać. W przeciwieństwie do jej prywatnego, domowego krytyka, rozwodzącego się nad głębią, kreską, plamą... o których niestety nie miał, biedny, zielonego pojęcia. Zielonego, ha, ha. Rudym ponoć dobrze w zielonym. 
+Dopiero w silnych ramionach tego drugiego poczuła się kobietą. Z całej licznej rodziny męża tylko ten mrukliwy rudzielec zdawał się być normalny. Nie przynudzał godzinami o starożytnych mędrcach, nie rozpaczał nad upadkiem współczesnego świata, po prostu... był. I zawsze, od jednego spojrzenia, rozumiał jej obrazy. Jakoś tak... potrafił w kilku prostych, niemal pozornie szorstkich słowach wyrazić dokładnie to, co chciała przekazać. W przeciwieństwie do jej prywatnego, domowego krytyka, rozwodzącego się nad głębią, kreską, plamą... o których niestety nie miał zielonego pojęcia. Zielonego, ha, ha. Rudym ponoć dobrze w zielonym. 
 No właśnie, Rudy... 
 
-Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyczny facet. Tylko w to małżeństwo dał się wkręcić, jak nie on. Sympatyczna dziewczyna, ale czy oni w ogóle cokolwiek o sobie wiedzieli? Jeśli wierzyć rodzinnej wersji, miało to być jakieś filmowe niemal zauroczenie od pierwszego wejrzenia... a potem była już tylko presja jego matki, na oboje. Najwyraźniej pani doktor spodobało się życie na wsi, więc zorganizowała sobie synową z gospodarstwem.
+Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyczny facet. Tylko w to małżeństwo dał się wkręcić, jak nie on. Sympatyczna dziewczyna, ale czy oni w ogóle cokolwiek o sobie wiedzieli? Jeśli wierzyć rodzinnej wersji, miało to być jakieś filmowe niemal zauroczenie od pierwszego wejrzenia... a potem  już tylko presja jego matki, na niego i na nią. Najwyraźniej pani doktor spodobało się życie na wsi, więc zorganizowała sobie synową z gospodarstwem.
 
 ...
-Podeszła bliżej, by mógł sięgnąć po koniuszek spowijającego ją ręcznika. Wystarczyło pociągnąć, a opadł jak miękka, wilgotna kurtyna. Tuż obok zmiętej już nieco, czerwonej sukienki. I białych, oślepiająco białych spodni.
 
-
+Podeszła bliżej, by mógł sięgnąć po koniuszek spowijającego ją ręcznika. Wystarczyło lekko pociągnąć, a opadł jak miękka, wilgotna kurtyna. Tuż obok zmiętej już nieco, czerwonej sukienki. I białych, oślepiająco białych spodni.
 
 #### On: 
 
@@ -38,7 +37,7 @@ Gdzieś za miastem, ciepłe popołudnie wczesnego lata. Mała dziewczynka, córk
 
 Po niebie przelatuje samolot. nie mógłby lecieć samolotem, są niebezpieczne, jak metalowe, latające trumny. Jak gigantyczne szerszenie, pożerające pasażerów. I jeszcze te zarazki w klimatyzacji. Już kilka razy wykręcał się z odwiedzin u starszej siostry na Wyspach. Rodzina wyobraża sobie, że jest jakimś mięczakiem, ale mężczyzna musi przecież dbać o żonę i dziecko, nie może się narażać bez powodu. Musi być ostoją, opoką. Najwyraźniej żona tak go widzi, jakoś się to odzwierciedla w tych nowych obrazach. 
 
-myśli: Rudy pewnie ciągle uprawia seks z żoną. jak zwierzęta.
+_myśli: Rudy pewnie ciągle uprawia seks z żoną. jak zwierzęta._
 
 #### Ten trzeci:
 
