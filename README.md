@@ -4,7 +4,7 @@
 
 (_ta część powinna być nieco rozmarzona, rozmyta, wielokropki, aluzje, kolory/światłocień_)
 
-Krople wody na jej nagich ramionach zalśniły rdzawo w promieniach popołudniowego słońca. Mokre włosy przylgneły do twarzy, zasłaniając jedno oko. W drugim zalśniła figlarna iskierka.
+Krople wody na jej nagich ramionach zalśniły rdzawo w promieniach popołudniowego słońca. Mokre włosy przylgneły do twarzy, zasłaniając jedno oko. W drugim błysnęła figlarna iskierka.
 
 \- A tak właściwie, to co Ci się we mnie najbardziej podobało?  
 
