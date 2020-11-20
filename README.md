@@ -2,6 +2,8 @@
 
 #### Ona
 
+(_ta część powinna być nieco rozmarzona, rozmyta, wielokropki, aluzje, kolory/światłocień_)
+
 Krople wody na jej nagich ramionach zalśniły rdzawo w promieniach popołudniowego słońca. Mokre włosy przylgneły do twarzy, zasłaniając jedno oko. W tym drugim zalśniła figlarna iskierka.
 
 \- A tak właściwie, to co Ci się we mnie najbardziej podobało?  
@@ -26,20 +28,21 @@ Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyc
 ...
 Podeszła bliżej, by mógł sięgnąć po koniuszek spowijającego ją ręcznika. Wystarczyło pociągnąć, a opadł jak miękka, wilgotna kurtyna. Tuż obok zmiętej już nieco, czerwonej sukienki. I białych, oślepiająco białych spodni.
 
-_część Agi powinna mieć nieco rozmarzenia, jakiś wielokropek, aluzja, kolory/światłocień_
+
 
 #### On: 
+
+(_ta część powinna być rozwlekła, wielokropki, piętrowe zdania, wątpliwości. bohater pełen lęków, ale jednocześnie jakoś przekonany o byciu Prawdziwym Mężczyzną_)
 
 Gdzieś za miastem, ciepłe popołudnie wczesnego lata. Mała dziewczynka, córka, zbiera polne kwiaty. On pochłonięty własnymi myślami. Lekka mgiełka w powietrzu zmiękcza kolory, przywodzi na myśl obrazy malowane przez żonę. Właściwie to ostatnio jej styl jakby ewoluował. Pastelowe, rozmyte sielsko krajobrazy ustąpiły niemal komiksowym, zamaszystym, jakby kreślonym od przykładnicy liniom w kolorach stali, juty, cegły, miedzi. W cieniach, rzucanych przez wysokie budynki często majaczy potężnie zbudowana postać. Bohater, przywódca.. może oficer? Wzdycha głęboko, właściwie zawsze chciał taki być. A może.. jest?\* żony trochę się boi, a trochę brzydzi. kilka nieśmiałych zbliżeń, inicjowanych raczej przez nią. Ciąża, Dziecko. 
 
 Po niebie przelatuje samolot. nie mógłby lecieć samolotem, są niebezpieczne, jak metalowe, latające trumny. Jak gigantyczne szerszenie, pożerające pasażerów. I jeszcze te zarazki w klimatyzacji. Już kilka razy wykręcał się z odwiedzin u starszej siostry na Wyspach. Rodzina wyobraża sobie, że jest jakimś mięczakiem, ale mężczyzna musi przecież dbać o żonę i dziecko, nie może się narażać bez powodu. Musi być ostoją, opoką. Najwyraźniej żona tak go widzi, jakoś się to odzwierciedla w tych nowych obrazach. 
 
-myśli: rudy pewnie ciągle uprawia seks z żoną. jak zwierzęta.
-
-_część miągwy musi być rozwlekła, wielokropki, piętrowe zdania, wątpliwości. pełen lęków, ale jednocześnie przekonany o byciu prawdziwym mężczyzną, \*myśli że to on jest silnym charakterem z obrazów_
-
+myśli: Rudy pewnie ciągle uprawia seks z żoną. jak zwierzęta.
 
 #### Ten trzeci:
+
+(_ta część ma być pisana krótkimi zdaniami, równoważniki, zdecydowanie._)
 
 Jak to się właściwie stało? Trochę nie w porządku wobec kuzyna. Właściwie bardzo nie w porządku. Tak jakoś wyszło. Widać zaraz, że są niedopasowani. Wyzwolona artystka, pomysłowa i rozpalona pod tą pozornie spokojną maską. I te nogi. Jego własna żona... szkoda gadać, piękna i dobra, ale praktyczna aż do bólu. Poza tym właściwie nieobecna. Zupełnie jak jego ojciec. I matka. Każde z nich chciałoby być nie jednym, a trzema lekarzami naraz. Dwadzieścia godzin na dobę, bez urlopu. A jak już im się trafił urlop, to... szkoda gadać. 
 
@@ -51,6 +54,6 @@ A oni... właściwie wszystko jakby się urwało po tej krótkiej niby-podróży
 
 U kuzynów. Wyglądała świetnie, ta jego... bratowa? Chyba tak. Bo to przecież jak brat. Nie całkiem udany, ale brat.
 
-miągwa nudzi o czymś Dorocie (wiersz o pszczołach?). Aga patrzy przez kieliszek rubinowego wina. zjada czereśnię. wiąże językiem supełek. milczenie. napięcie.
+Kuzyn nudzi o czymś jego żonie, jakiś wiersz o pszczołach? Aga patrzy przez kieliszek rubinowego wina. Wkłada do ust czereśnię razem z ogonkiem. Kiedy ogonek pojawia się znowu, jest na nim zawiązany supełek. Milczenie. Napięcie.
 
-_część Jożina musi być pisana krótkimi zdaniami, równoważniki, zdecydowanie._
+
