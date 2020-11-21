@@ -1,13 +1,9 @@
 ### Wyjaśnienie
 
-W ataku masochizmu przekartkowałem na szybko kilka ostatnich dzieł, od "Sprężyny" do "Ciotki Zgryzotki". 
-Nieprzerwany festiwal groteski miesza w głowie niczym flaszka wina "Monsieur Chrobot de Carcassone" w upalny dzień, stąd też najwyraźniej potrzeba napisania czegoś, czegokolwiek.
-Bez pretensji do bycia prawdziwym fanfik-twórcą: ot, tak, bo kto mi zabroni. 
+Przedstawione tu fragmenty tekstu zostały starannie, niewątpliwie znacznie staranniej niż je napisano, przepisane z kilku wymiętych, poplamionych świstków. Świstków, zostawionych jako prymitywne zakładki w jednej z książek ze zbioru lokalnej biblioteki. Tytułu ani autora nie warto nawet wspominać, aczkolwiek taki a nie inny wybór rzuca niejakie światło na skandaliczną zawartość. Długo możnaby się rozwodzić, co może sprawiać, iż ktoś z własnej i nieprzymuszonej woli tworzy podobne "dzieła". Jednego możemy być niemal pewni: od ostatecznego bankructwa moralnego muszą dzielić sprawcę tych zbrodni na literaturze już tylko ostatnie łyki wina "Monsieur Chrobot", niewątpliwie konsumowanego wprost z butelki. 
 
-Nie jest to pełna historia, a jedynie urywek, odprysk alternatywnej rzeczywistości. A właściwie brudnopis urywka.
+Właściwie należałoby te zapiski zniszczyć, ale postanowiono zachować je tutaj dla kontrastu. Na tle tych wytworów wyobraźni maniaka Oryginały błyszczą jeszcze jaśniej swym dobrym, ciepłym i miłym światłem. Odważnym, ale ostrożnym! czytelnikom pozostawia się możliwość zajrzenia w ten brudny, lepki półmrok. Byle na krótko, i z powrotem w krąg Światła i Dobra!
 
-Nie jest to parodia oryginału, ale nie jest to też pastisz, stąd brak (przynajmiej w zamierzeniu) nawiązań do stylu orygniałów. 
 
-Czy mogłoby tak być? A niby czemu nie...
 
 [Światłocienie](https://github.com/readyforfreddy/fanfikmik/blob/main/fanfik.md)
