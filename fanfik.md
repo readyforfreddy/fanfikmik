@@ -1,6 +1,8 @@
 ## ~~Błędne ognie /~~ Światłocienie
 
-#### Ona
+### Ona
+
+(_ONA: ta część powinna być rozmyta, wielokropki, aluzje, pastele, światłocień_)
 
 Krople wody na jej nagich ramionach zalśniły rdzawo w promieniach popołudniowego słońca. Mokre włosy przylgneły do twarzy, zasłaniając jedno oko. W drugim błysnęła figlarna iskierka.
 
@@ -28,8 +30,9 @@ Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyc
 
 Podeszła bliżej, by mógł sięgnąć po koniuszek spowijającego ją ręcznika. Wystarczyło lekko pociągnąć, a opadł jak miękka, wilgotna kurtyna. Tuż obok zmiętych na podłodze białych spodni i czerwonej sukienki.
 
-#### On: 
+### On: 
 
+(_ta część powinna być rozwlekła, wielokropki, piętrowe zdania, wątpliwości; bohater pełen lęków, ale jednocześnie jakoś przekonany o byciu Prawdziwym Mężczyzną_)
 
 
 Bladobłękitne niebo przecinał powoli samolot. Z naziemnej, wręcz przyziemnej perspektywy zdawał się malutki jak muszka owocówka. Tak naprawdę był pewnie ogromny, metalowy szerszeń pożerający lekkomyślnych podróżnych. I jeszcze te zarazki w klimatyzacji. Już kilka razy wykręcał się z odwiedzin u starszej siostry na Wyspach Brytyjskich. Rodzina chyba wyobraża sobie, że jest jakimś mięczakiem, ale mężczyzna musi przede wszystkim dbać o żonę i dziecko, nie może się narażać bez powodu. Musi być ostoją, opoką, oczywiście. 
@@ -38,10 +41,10 @@ Najważniejsze, że to własna żona w końcu dostrzegła w nim tę siłę. Nie 
 
 _myśli: Rudy pewnie ciągle uprawia seks z żoną. jak zwierzęta. on sam żony trochę się boi, a trochę brzydzi. kilka nieśmiałych zbliżeń, inicjowanych raczej przez nią. Ciąża, Dziecko._
 
-~~Gdzieś za miastem, ciepłe popołudnie wczesnego lata. Mała dziewczynka, córka, zbiera polne kwiaty. On pochłonięty własnymi myślami. Lekka mgiełka w powietrzu zmiękcza kolory, przywodzi na myśl obrazy malowane przez żonę. Właściwie to ostatnio~~ 
 
-#### Ten trzeci:
+### Ten trzeci:
 
+(_TEN TRZECI: ta część ma być pisana krótkimi zdaniami, równoważniki, zdecydowanie._)
 
 
 Jak to się właściwie stało? Trochę nie w porządku wobec tego łamagi. Właściwie bardzo nie w porządku. Ale tak jakoś wyszło. Widać zaraz, że są niedopasowani. Wyzwolona artystka, pomysłowa i rozpalona pod tą pozornie spokojną maską. 
@@ -63,9 +66,3 @@ Kuzyn nudził o czymś jego żonie, jakiś wiersz o pszczołach? Nie można był
 Zatopiła w nim wzrok przez uniesiony kieliszek, jak przez rubinowy filtr. Sięgnęła po jedną z tych wiśni, które przynieśli z sadu. Powolnym, leniwym ruchem wsunęła ją w półotwarte usta, razem z ogonkiem. Z ogonkiem? 
 
 Za chwilę zrozumiał. Różowy czubek języka wypchnął ogonek na zewnątrz, zawiązany w supełek. Mimo upału przeszył go zimny dreszcz. 
-
-
-
-_* ONA: ta część powinna być rozmyta, wielokropki, aluzje, pastele, światłocień
-* ON: _ta część powinna być rozwlekła, wielokropki, piętrowe zdania, wątpliwości; bohater pełen lęków, ale jednocześnie jakoś przekonany o byciu Prawdziwym Mężczyzną
-* TEN TRZECI: ta część ma być pisana krótkimi zdaniami, równoważniki, zdecydowanie._
