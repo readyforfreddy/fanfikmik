@@ -1,4 +1,4 @@
-## ~~Błędne ognie /~~ Światłocienie
+## Światłocienie
 
 ### Ona
 
