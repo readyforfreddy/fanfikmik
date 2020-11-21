@@ -21,9 +21,10 @@ Małomówny, ale konkretny. Właśnie to ją do niego ciągnęło, chyba odkąd 
 Byle tylko się nie zgubili na tej podmiejskiej wycieczce, to by było podobne do tego fajtłapy. To niemal cud, że w ogóle mieli córkę, z tym jego bojaźliwym niezdecydowaniem. Na początku było to nawet urocze, ta jego nieśmiała delikatność, ta ciągła troska, czy aby nie robi czegoś niestosownego. 
 
 Dopiero w silnych ramionach tego drugiego poczuła się kobietą. Z całej licznej rodziny męża tylko ten mrukliwy rudzielec zdawał się być normalny. Nie przynudzał godzinami o starożytnych mędrcach, nie rozpaczał nad upadkiem współczesnego świata, po prostu... był. I zawsze, od jednego spojrzenia, rozumiał jej obrazy. Jakoś tak... potrafił w kilku prostych, niemal pozornie szorstkich słowach wyrazić dokładnie to, co chciała przekazać. W przeciwieństwie do jej prywatnego, domowego krytyka, rozwodzącego się nad głębią, kreską, plamą... o których niestety nie miał zielonego pojęcia. Zielonego, ha, ha. Rudym ponoć dobrze w zielonym. 
+
 No właśnie, Rudy... 
 
-Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyczny facet. Tylko w to małżeństwo dał się wkręcić, jak nie on. Sympatyczna dziewczyna, ale czy oni w ogóle cokolwiek o sobie wiedzieli? Jeśli wierzyć rodzinnej wersji, miało to być jakieś filmowe niemal zauroczenie od pierwszego wejrzenia... a potem  już tylko presja jego matki, na niego i na nią. Najwyraźniej pani doktor spodobało się życie na wsi, więc zorganizowała sobie synową z gospodarstwem.
+Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyczny facet! Tylko w to małżeństwo dał się wkręcić, jak nie on. Sympatyczna dziewczyna, ale czy oni w ogóle cokolwiek o sobie wiedzieli? Jeśli wierzyć rodzinnej wersji, miało to być jakieś filmowe niemal zauroczenie od pierwszego wejrzenia... a potem  już tylko presja jego matki, na niego i na nią. Najwyraźniej pani doktor spodobało się życie na wsi, więc zorganizowała sobie synową z gospodarstwem.
 
 ...
 
