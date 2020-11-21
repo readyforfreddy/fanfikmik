@@ -4,3 +4,5 @@ Bez pretensji do bycia prawdziwym fanfik-twórcą: ot, tak, bo kto mi zabroni. N
 Nie jest to parodia oryginału, ale nie jest to też pastisz, stąd brak (przynajmiej w zamierzeniu) nawiązań do stylu orygniałów. 
 
 Czy mogłoby tak być? A niby czemu nie...
+
+[Światłocienie](https://github.com/readyforfreddy/fanfikmik/blob/main/fanfik.md)
