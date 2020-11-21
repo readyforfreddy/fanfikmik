@@ -51,7 +51,7 @@ Ale wszystko się jakoś poukładało, jakby według doskonałego scenariusza. N
 (_ta część ma być pisana krótkimi zdaniami, równoważniki, zdecydowanie._)
 
 
-Jak to się właściwie stało? Trochę nie w porządku wobec tego łamagi. Właściwie bardzo nie w porządku. Ale tak jakoś wyszło. Widać zaraz, że są niedopasowani. Wyzwolona artystka, pomysłowa i rozpalona pod tą pozornie spokojną maską. 
+Jak to się właściwie stało? Trochę nie w porządku wobec tego łamagi. Właściwie bardzo nie w porządku. Ale tak jakoś wyszło. Widać zaraz, że są niedopasowani. Zakopany w książkach fajtłapa, i ona - wyzwolona artystka, pomysłowa i rozpalona pod tą pozornie spokojną maską. 
 
 I te nogi. 
 
