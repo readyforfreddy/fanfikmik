@@ -70,4 +70,6 @@ Podeszła do niego, z kieliszkiem wina w dłoni. Byłoby fatalnie, gdyby się ob
 
 Zatopiła w nim wzrok przez uniesiony kieliszek, jak przez rubinowy filtr. Sięgnęła po jedną z tych wiśni, które przynieśli z sadu. Powolnym, leniwym ruchem wsunęła ją w półotwarte usta, razem z ogonkiem. Z ogonkiem? 
 
-Za chwilę zrozumiał. Różowy czubek języka delikatnie wypchnął na zewnątrz wiśniową szypułkę, zawiązaną w supełek. Mimo upału przeszył go zimny dreszcz. 
+Różowy czubek języka delikatnie wypchnął na zewnątrz wiśniową szypułkę, zawiązaną w supełek. Mimo upału przeszył go zimny dreszcz.
+
+...
