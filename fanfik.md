@@ -61,8 +61,10 @@ A oni... właściwie wszystko jakby się urwało po tej krótkiej niby-podróży
 
 U kuzynów. Wyglądała świetnie, ta jego... bratowa? Chyba tak. Bo to przecież jak brat. Nie całkiem udany, ale brat.
 
-Kuzyn nudził o czymś jego żonie, jakiś wiersz o pszczołach? Nie można było tego słuchać dłużej niż przez kilkanaście sekund. Trzeba się wyłączyć, żeby nie zasnąć. Podeszła do niego, z kieliszkiem wina w dłoni. Byłoby fatalnie, gdyby się oblała, pewnie nigdy by nie zeszło z tej białej sukienki. Świetnie w niej wyglądała. 
+Kuzyn nudził o czymś jego żonie, jakiś wiersz o pszczołach? Nie można było tego słuchać dłużej niż przez kilkanaście sekund. Trzeba się wyłączyć, żeby nie zasnąć. 
+
+Podeszła do niego, z kieliszkiem wina w dłoni. Byłoby fatalnie, gdyby się oblała, pewnie nigdy by nie zeszło z tej białej sukienki. Świetnie w niej wyglądała. 
 
 Zatopiła w nim wzrok przez uniesiony kieliszek, jak przez rubinowy filtr. Sięgnęła po jedną z tych wiśni, które przynieśli z sadu. Powolnym, leniwym ruchem wsunęła ją w półotwarte usta, razem z ogonkiem. Z ogonkiem? 
 
-Za chwilę zrozumiał. Różowy czubek języka wypchnął ogonek na zewnątrz, zawiązany w supełek. Mimo upału przeszył go zimny dreszcz. 
+Za chwilę zrozumiał. Różowy czubek języka delikatnie wypchnął na zewnątrz wiśniową szypułkę, zawiązaną w supełek. Mimo upału przeszył go zimny dreszcz. 
