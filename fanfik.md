@@ -30,7 +30,7 @@ Chwilami nie potrafiła uwierzyć, że tak jakoś wyszło... A jednak. Fantastyc
 
 Podeszła bliżej, by mógł sięgnąć po koniuszek spowijającego ją ręcznika. Wystarczyło lekko pociągnąć, a opadł jak miękka, wilgotna kurtyna. Tuż obok zmiętych na podłodze białych spodni i czerwonej sukienki.
 
-### On: 
+### On
 
 (_ta część powinna być rozwlekła, wielokropki, piętrowe zdania, wątpliwości; bohater pełen lęków, ale jednocześnie jakoś przekonany o byciu Prawdziwym Mężczyzną_)
 
@@ -46,7 +46,7 @@ Hmmmm... w pewnym sensie istotnie się nie dało, ale przecież aby dać życie,
 Ale wszystko się jakoś poukładało, jakby według doskonałego scenariusza. Najwyraźniej w każdym scenariuszu musi być scena przy zgaszonym świetle... Na szczęście zgadzali się, że jedno dziecko na początek wystarczy, i sceny nie trzeba było powtarzać. Przynajmniej na razie...
 
 
-### Ten trzeci:
+### Ten trzeci
 
 (_ta część ma być pisana krótkimi zdaniami, równoważniki, zdecydowanie._)
 
