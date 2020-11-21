@@ -1,3 +1,5 @@
+### Wyjaśnienie
+
 W ataku masochizmu przekartkowałem na szybko kilka ostatnich dzieł, od "Sprężyny" do "Ciotki Zgryzotki". 
 Nieprzerwany festiwal groteski miesza w głowie niczym flaszka wina "Monsieur Chrobot" w upalny dzień, stąd też najwyraźniej potrzeba napisania czegoś, czegokolwiek.
 Bez pretensji do bycia prawdziwym fanfik-twórcą: ot, tak, bo kto mi zabroni. 
